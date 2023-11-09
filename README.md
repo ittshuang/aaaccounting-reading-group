@@ -1,3 +1,3 @@
 # Accounting Reading Group
 
-Project Page for Accounting Literature Reading Group
+Project Page for a Student-Run Accounting Literature Reading Group
